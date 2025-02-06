@@ -2,7 +2,7 @@
 - 👀 I’m interested in Coding
 - 🌱 I’m currently learning BIM
 - 💞️ I’m looking to collaborate on Open Source Project
-- 📫 How to reach me 📧 me in sudippande81@gmail.com
+- 📫 How to reach me 📧 me in sudippande10@gmail.com
 - 😄 Pronouns: ?
 - ⚡ Fun fact: ...Let's code 
 
